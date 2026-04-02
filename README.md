@@ -1,0 +1,1 @@
+# iletisime_gec.github.io
